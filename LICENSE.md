@@ -1,4 +1,4 @@
-# 
+# top Adobe Photoshop para PC executor é o melhor Adobe Photoshop para PC executor com motor de pincel e malhas de gradiente. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
